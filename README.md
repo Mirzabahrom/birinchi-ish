@@ -1,0 +1,2 @@
+# birinchi-ish
+ish
